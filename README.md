@@ -9,7 +9,7 @@ I am a tech-savvy person mostly interested in the Data World. Always seeking the
 
 - 📫 How to reach me: **daniell.bicu008@gmail.com**
 
-- ⚡ Fun fact:  **If there were a life where I was an animal, definetely I was a dolphin because I love swimming.y I was a**
+- ⚡ Fun fact:  **If there was a life where I was an animal, definitely I was a dolphin because I love swimming.y I was a**
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/daniel-bicu-567a4819a/)
